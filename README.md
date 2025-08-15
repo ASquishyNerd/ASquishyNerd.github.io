@@ -1,1 +1,1 @@
-# Edwards Jacks Blog
+# Edward Jacks Blog
