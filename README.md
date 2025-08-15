@@ -1,1 +1,1 @@
-# ASquishyNerd.github.io
+# Edwards Jacks Blog
